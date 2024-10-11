@@ -31,9 +31,8 @@
 
 ## 📚 Learning
 - content writing
-- upwork bidding
-- tactical planning
-- law
+- vedio editting
+
 
 ## 🎵 Spotify status
 &nbsp;<div align="center">
