@@ -13,15 +13,12 @@
 - Udemy Instructor
 
 
-## 📅 Hobbies
+## 📅 Services
 - crochet
 - sewing
 - knitting
 - cooking
 - baking
-- reading
-- music
-- travelling and exploring
 - culinary arts
 
 ## 💻 Current projects
