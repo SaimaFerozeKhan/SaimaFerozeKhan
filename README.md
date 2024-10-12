@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Saima</h1>
-<h3 align="center">An Enterpnure from Pakistan</h3>
+<h3 align="center"> Knitting and Crochet Expert | Chef | Fashion Designer | Trainer | Entrepreneur | Writer | Researcher</h3>
 
 ## 💬 Ask me about                                                
 - Crochet, Knitting (Fiber arts)
