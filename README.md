@@ -10,7 +10,7 @@
 - Swewing
 - Video Editing (Audacity, OpenShot etc..)
 - Graphic Designing
-- udemy intructor
+- Udemy Instructor
 
 
 ## 📅 Hobbies
