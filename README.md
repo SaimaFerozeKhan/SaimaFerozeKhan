@@ -26,11 +26,11 @@
 
 ## 💻 Current projects
 -  Udemy content
--  entreprenurial ventures - Chef and Fiber arts (flavor.life) 
+-  Flavors.Life (Entrepreneural venture) 
 
 ## 📚 Learning
 - content writing
-- vedio editting
+- video editting
 
 
 ## 🎵 Spotify status
